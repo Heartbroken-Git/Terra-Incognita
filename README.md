@@ -1,5 +1,6 @@
 # Terra Incognita
 
+**Déplacé sur [World Anvil](https://www.worldanvil.com/w/terra-incognita-heartbroken) désormais !**
 
 ## De quoi s'agit-il ?
 
